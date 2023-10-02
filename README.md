@@ -1,5 +1,5 @@
 - 👀 I'm interested in mobile application development
-- 🌱 I’m currently studying on the Khoperskil platform
+- 🌱 I’m currently studying on the Hyperskill platform
 - 💞️I am looking for cooperation with anyone who can offer work
 - 📫 How to contact me (tigertoshtv@gmail.com)
 
